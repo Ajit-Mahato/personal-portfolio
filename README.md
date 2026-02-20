@@ -6,7 +6,7 @@
 
 - 👯 I’m looking to collaborate on **Application development for mobile and web**
 
-- 📫 How to reach me **ajitmahato140404@gmail.com**
+- 📫 Connect me **ajitmahato140404@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
